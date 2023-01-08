@@ -1,0 +1,1 @@
+My name is Ronald and I want to become a professional web developer. I love playing basketball and hanging out with my friends. My goal for this 2023 is to finished my studies in web development by giving my 2 to 3 hours of my time doing my home task assignments.
